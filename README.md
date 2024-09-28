@@ -6,8 +6,7 @@ You can catch pokemon without walking using the new teleport and GPS functions! 
 
 :::: Click here ►🔴✅👉 <a href="https://shorturl.at/ajsEc">Get Free Pokemon Go Spoofer</a>
 
-This hack works for free on all mobile OS, like android & ios. GPS spoofing on iOS is very easy, you DON'T need to jailbreak your iPhone or iPad or download any mod APK. Just visit our pokemon glazed cheats website which works on  
-light platinum servers and follow the instructions. You will get your Pokemon Hack ready just in minutes. 
+This hack works for free on all mobile OS, like android & ios. GPS spoofing on iOS is very easy, you DON'T need to jailbreak your iPhone or iPad or download any mod APK. Just visit our pokemon glazed cheats website which works on  light platinum servers and follow the instructions. You will get your Pokemon Hack ready just in minutes. 
 
 The teleport and joystick features for this fake GPS spoofer is the best cheat/hack you get online today. We have also Tips &  I will show you now the best pokemon go spoofer for android and ios with a simple installation! It's with the 
 pokemon go hack joystick, gps and teleport! Look no more if you want to know how to spoof on pokemon go this is the easiest method! I just caught a mewtwo and rayquaza in just a few minutes! To complete the pokemon go hack setup just 
